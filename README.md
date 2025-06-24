@@ -1,7 +1,8 @@
 <h2>打驴动漫官网入口 - 无广告所有樱花动漫番剧免费看|打不开|下载</h2>
 <p>打驴动漫是一个专为动漫爱好者设计的综合性在线平台，提供海量高清动漫资源和流畅的观影体验。它以丰富的动漫资源库、高清画质、实时更新和无广告干扰等特点深受用户喜爱。无论是热门新番、经典老番还是独家连载作品，用户都能在这里找到自己喜欢的内容。此外，打驴动漫还支持离线缓存功能，使用户在没有网络的情况下也能享受优质动漫内容。</p>
 <p><strong>一键访问：</strong><a href="https://www.rymdh.com/sites/15526.html" target="_blank"><strong>打驴动漫最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/dongmanerciyuan" target="_blank"><strong>在线看动漫/漫画导航网站大全</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点：</strong></p>
 <ol>
